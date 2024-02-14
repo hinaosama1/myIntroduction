@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Mrssheikhosama
+- 👀 I’m interested in latest technology,
+- 🌱 I’m currently learning ("Artificial, Intelligence")
+- my 1'st project of code is console.log("Hello, World!");
+- 📫 How to reach me . "my Whatsapp, 03172186898
+- "Email, "hoorianoor59@gmail.com")
