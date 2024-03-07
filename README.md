@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Mrssheikhosama
 - 👀 I’m interested in latest technology,
-- 🌱 I’m currently learning ("Artificial, Intelligence")
+- 🌱 I’m currently learning ("Artificial, Intelligence" web 3.0 & metaverse)
 - 📫 How to reach me .("Email, "hoorianoor59@gmail.com")
+- ✨ i have 4 + years of experience in digital marketing
