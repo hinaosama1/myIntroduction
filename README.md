@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mrssheikhosama
+- 👋 Hi, I’m @Hooriaosama(hina)
 - 👀 I’m interested in latest technology,
 - 🌱 I’m currently learning ("Artificial, Intelligence" web 3.0 & metaverse)
 - 📫 How to reach me .("Email, "hoorianoor59@gmail.com")
